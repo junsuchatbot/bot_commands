@@ -5,8 +5,11 @@
 ### 인스타
 - https://www.instagram.com/muene0302?igsh=MXdiMmtxN3R0MDZ4aQ==
 
-### Naver Cafe
+### Naver Cafe 가입 신청
 - https://naver.me/xhzxxy4m
+
+### Naver Cafe
+- https://cafe.naver.com/acebotcommunity
   
 ### AceBot 오픈채팅방
 - https://open.kakao.com/o/gtGs6osh
