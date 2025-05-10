@@ -3,10 +3,7 @@
 ## SNS
 
 ### 인스타
-- https://www.instagram.com/muene0302?igsh=MXdiMmtxN3R0MDZ4aQ==
-
-### Naver Cafe 가입 신청
-- https://naver.me/xhzxxy4m
+- https://www.instagram.com/acebot.kr?igsh=MW9pNzJuMTI3czg3bQ==
 
 ### Naver Cafe
 - https://cafe.naver.com/acebotcommunity
